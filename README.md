@@ -4,10 +4,10 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on fhgjhrjr.
+- 🔭 I’m currently working on fhgjhrjr.jgvgv
 - 🌱 I’m currently learning ..gcdudd.
 - 👯 I’m looking to collaborate on .ftfttfuy..
-- 🤔 I’m looking for help with ftftt6r5...
+- 🤔 I’m looking for help with ftftt6r5...yfygeyuboss
 - 💬 Ask me about ...drrftffrt
 - 📫 How to reach me: ...fttfttt
 
